@@ -15,8 +15,6 @@ Hollingsworth, C. (2024, January 11). _Hazbin Hotel debuts on Amazon Prime, amid
 
 Jefferson, W. (2011, October 31). _Family Guy hits horrible new low with domestic abuse episode_. Jezebel. https://web.archive.org/web/20160510084636/https://www.jezebel.com/5854810/family-guy-hits-horrible-new-lows-with-domestic-abuse-episode
 
-Koul, S. (2016, October 6). _Why punching down will never be funny_. BuzzFeed News. https://www.buzzfeednews.com/article/scaachikoul/why-punching-down-will-never-be-funny
-
 McCarthy, T. (2004, January 19). _Garden State_. Variety. https://variety.com/2004/film/awards/garden-state-3-1200537001/
 
 National Archives. (2021, September 14). _Plessy v. Ferguson (1896)_. National Archives; The U.S. National Archives and Records Administration. https://www.archives.gov/milestone-documents/plessy-v-ferguson
@@ -24,9 +22,5 @@ National Archives. (2021, September 14). _Plessy v. Ferguson (1896)_. National A
 Noraas, D. (2022, April 4). _“Hazbin Hotel”: Everything we know so far about the A24 animated series_. Collider. https://collider.com/hazbin-hotel-everything-we-know-a24-adult-animation/
 
 Petski, D. (2023, December 13). _“Hazbin Hotel” trailer: The princess of Hell is determined to rehabilitate wayward sinners in adult animated musical comedy series — update_. Deadline. https://deadline.com/2023/12/hazbin-hotel-premiere-date-prime-video-guest-cast-trailer-1235635095/
-
-Raphielle II. (2021, November 29). _“VALENTINO” Hazbin Hotel fan-animatic (UNOFFICIAL) (18+)_. YouTube. https://www.youtube.com/watch?v=SudDkDpBRoI
-
-Sauter, M. (2019, November 17). _Lilith in the Bible and mythology_. Biblical Archaeology Society. https://www.biblicalarchaeology.org/daily/biblical-topics/hebrew-bible/lilith-in-the-bible-and-mythology/
 
 Varin, K. (2016). _Breakfast at Tiffany’s: The fluctuating identity of Holly Golightly_. Forbes & Fifth; University of Pittsburgh. https://www.forbes5.pitt.edu/article/breakfast-tiffanys
